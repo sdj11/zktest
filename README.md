@@ -66,3 +66,6 @@
 `后羿`
 
 ![后羿](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1559135000607&di=cc5c3143e43b1234f358cbe05b9813af&imgtype=0&src=http%3A%2F%2Fpic.9ht.com%2Fup%2F2017-3%2F2017324164742.jpg)
+
+610
+大战三场，斩获一血，zks非常给力，是个王者的料
